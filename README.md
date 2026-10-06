@@ -1,0 +1,1 @@
+# pakiza-ot-x-lomkonxpiku
